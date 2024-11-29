@@ -1,1 +1,0 @@
-# Realidade_aumentada_T1MAN_p75rzfl
